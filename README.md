@@ -1,2 +1,0 @@
-# html-Portf-y
-Deneme
